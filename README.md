@@ -1,0 +1,1 @@
+# Barber Shop Business Template
